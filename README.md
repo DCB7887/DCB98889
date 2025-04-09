@@ -1,1 +1,0 @@
-# Dechawat-Chaiyabut
